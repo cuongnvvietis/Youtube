@@ -3,3 +3,5 @@
 
 
 Logo hình tròn cho kênh YouTube tin tức, phong cách news hiện đại, nền tối với hiệu ứng ánh sáng đỏ và xanh chia đôi, phía sau là bản đồ thế giới dạng chấm mờ, vòng tròn công nghệ (HUD, radar) bao quanh, chữ lớn "BIẾN" ở trung tâm, font dày, hiện đại, hiệu ứng 3D bóng, màu trắng và đỏ nổi bật, có viền sáng và glow nhẹ, bên dưới có thanh nhỏ chứa chữ "MỖI NGÀY", bố cục cân đối, nội dung nằm gọn trong hình tròn, không sát mép, độ tương phản cao, dễ nhìn khi thu nhỏ, 800x800
+
+https://tinypng.com/
